@@ -1,2 +1,0 @@
-# Cracker-Island
-Forever cult
